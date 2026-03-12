@@ -1,0 +1,2 @@
+# ASKIM
+seni seviyorum
